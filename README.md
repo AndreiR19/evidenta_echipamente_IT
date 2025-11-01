@@ -1,0 +1,1 @@
+# evidenta_echipamente_IT
